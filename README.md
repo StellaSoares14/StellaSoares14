@@ -1,4 +1,4 @@
 
-![Stella](https://github.com/StellaSoares14/StellaSoares14/assets/129445948/13cf471d-eb40-4d83-93d2-7784163bb29f)
+![Stella](https://github.com/StellaSoares14/StellaSoares14/assets/129445948/0d32abc2-05ae-4cfb-8abe-e69d377f4fd6)
 
 # 
